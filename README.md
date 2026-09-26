@@ -89,4 +89,4 @@ I'm especially interested in opportunities where I can contribute with **JavaScr
 
 ## 📫 Let's Connect
 
-[LinkedIn](linkedin.com/in/kamaljeet-kaur-98248a2b9) • [GitHub]((https://github.com/KK15082005/KK15082005)
+[LinkedIn] (linkedin.com/in/kamaljeet-kaur-98248a2b9) • [GitHub]((https://github.com/KK15082005/KK15082005)
